@@ -1,1 +1,1 @@
-My second readme
+Learning programming is hard
