@@ -1,1 +1,1 @@
-It's hasn't been easy at all
+It hasn't been easy at all
