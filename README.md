@@ -1,1 +1,1 @@
-My first readme
+Coding is challenging but interesting and adventurous
